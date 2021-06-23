@@ -1,2 +1,0 @@
-# 277artdi
-Text
